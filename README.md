@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @haleyfox12
 - 👀 I’m interested in the intersection of sales/ brand developement in the IT world
 - 🌱 I’m currently learning creative ways to connect and be personal online 
-- 💞️ I’m looking to collaborate or with Directors/ hiring Managers on finding the correct sources for their team
+- 💞️ I’m looking to collaborate with Directors/ Hiring Managers on finding the correct sources for their team
 - 📫 hfox@whitakerit.com or connect with me via LinkedIn 
 
 <!---
